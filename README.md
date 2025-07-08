@@ -42,8 +42,7 @@ These projects are:
 
 **Priyanka More**  
 🔗 [GitHub Profile](https://github.com/001Priyanka)  
-🔗 [LinkedIn](https://www.linkedin.com/in/
-priyanka More) 
+🔗 [LinkedIn](https://www.linkedin.com/in/priyanka-more-67353275/) 
 
 ---
 
